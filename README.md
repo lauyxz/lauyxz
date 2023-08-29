@@ -5,4 +5,5 @@
    -Um pouco sobre mim
    -No meu tempo livre eu leio e cozinho📚
    - Minha tiktoker favorita
-![](https://media.tenor.com/cbkhJKVDEDkAAAAC/harry-potter.gif)
+     ![](https://media.tenor.com/cbkhJKVDEDkAAAAC/harry-potter.gif)
+
