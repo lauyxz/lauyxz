@@ -4,7 +4,7 @@
 
    -Um pouco sobre mim
    -No meu tempo livre eu leio e cozinho📚
-   - Minha tiktoker favorita
+   - Meu livro favorito é "É Assim que Acaba"
 
    - 
      ![](https://media.tenor.com/cbkhJKVDEDkAAAAC/harry-potter.gif)
